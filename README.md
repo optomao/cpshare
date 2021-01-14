@@ -1,2 +1,2 @@
 # cpshare
-May they exist forever!
+May THEY LAST　FOREVER！
